@@ -9,3 +9,5 @@ JUST IN: Apple’s revamped Siri reportedly may launch as a beta even after a tw
 NEW: Former Google CEO Eric Schmidt booed by Arizona students after bringing up AI in his graduation speech.
 
 30% chance the U.S. enacts an AI safety bill.
+
+NEW: Microsoft AI chief predicts AI will automate most white-collar work within 18 months.
