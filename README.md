@@ -13,3 +13,5 @@ NEW: Former Google CEO Eric Schmidt booed by Arizona students after bringing up 
 NEW: Microsoft AI chief predicts AI will automate most white-collar work within 18 months.
 
 JUST IN: 🇺🇸🇮🇷 United States rejects latest Iranian peace proposal.
+
+JUST IN: Michael Saylor’s Strategy now owns more than 4% of the total supply of Bitcoin.
