@@ -27,3 +27,7 @@ JUST IN: Putin reportedly proposed to Xi that Iranian enriched uranium be transp
 NEW: Scientists discover the Great Pyramid of Giza was built with "sophisticated" earthquake-resistant features.
 
 15% chance aliens are confirmed this year.
+
+JUST IN: Trump announces the U.S. has "total control" over the Strait of Hormuz. 
+
+28% chance Hormuz traffic returns to normal by the end of next month.
