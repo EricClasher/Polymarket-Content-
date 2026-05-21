@@ -53,3 +53,5 @@ NEW: Canadian Member of Parliament Tamara Jansen welcomes newborn grandson, Char
 JUST IN: Fed’s Barkin warns gas prices could take months to fall even after the Strait of Hormuz fully reopens.
 
 NEW: “The Mandalorian and Grogu” debuts with a 61% critic score on Rotten Tomatoes.
+
+JUST IN: Senate leaves for Memorial Day recess without passing Trump’s immigration enforcement funding bill.
