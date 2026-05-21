@@ -36,3 +36,5 @@ JUST IN: Oil prices projected to crash below $90 this month on reports that U.S.
 61% chance.
 
 JUST IN: The Pentagon is using 25 “power users” to test rival AI models as it races to replace Claude.
+
+JUST IN: Starbucks retires AI inventory tool across North America after it reportedly miscounted & mislabeled store items.
