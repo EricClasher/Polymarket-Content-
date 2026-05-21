@@ -57,3 +57,5 @@ NEW: “The Mandalorian and Grogu” debuts with a 61% critic score on Rotten To
 JUST IN: Senate leaves for Memorial Day recess without passing Trump’s immigration enforcement funding bill.
 
 JUST IN: Mark Cuban says Bitcoin "lost the plot"
+
+JUST IN: Trump pauses his AI oversight executive order, saying he "didn't like certain aspects of it"
