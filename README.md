@@ -40,3 +40,6 @@ JUST IN: The Pentagon is using 25 “power users” to test rival AI models as i
 JUST IN: Starbucks retires AI inventory tool across North America after it reportedly miscounted & mislabeled store items.
 
 JUST IN: Greenlanders protest against Trump in Nuuk, chanting “No means no”
+
+14% chance the U.S. acquires part of Greenland.
+on Polymarket.
