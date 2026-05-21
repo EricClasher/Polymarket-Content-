@@ -45,3 +45,5 @@ JUST IN: Greenlanders protest against Trump in Nuuk, chanting “No means no”
 on Polymarket.
 
 JUST IN: Nuclear startup Deep Fission files for IPO as it works to install nuclear reactors one mile underground to power the AI boom.
+
+NEW: Clavicular announces he will livestream his upcoming looksmaxxing surgeries.
