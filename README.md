@@ -15,3 +15,5 @@ NEW: Microsoft AI chief predicts AI will automate most white-collar work within 
 JUST IN: 🇺🇸🇮🇷 United States rejects latest Iranian peace proposal.
 
 JUST IN: Michael Saylor’s Strategy now owns more than 4% of the total supply of Bitcoin.
+
+JUST IN: Bolivia moves to overhaul its cabinet as nationwide unrest & highway blockades strangle La Paz.
