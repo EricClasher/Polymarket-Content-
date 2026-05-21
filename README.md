@@ -43,3 +43,5 @@ JUST IN: Greenlanders protest against Trump in Nuuk, chanting “No means no”
 
 14% chance the U.S. acquires part of Greenland.
 on Polymarket.
+
+JUST IN: Nuclear startup Deep Fission files for IPO as it works to install nuclear reactors one mile underground to power the AI boom.
