@@ -61,3 +61,5 @@ JUST IN: Mark Cuban says Bitcoin "lost the plot"
 JUST IN: Trump pauses his AI oversight executive order, saying he "didn't like certain aspects of it"
 
 JUST IN: Oura, maker of Oura Ring, confidentially files for IPO.
+
+NEW: UN climate panel is set to drop its worst-case warming scenario after scientists deemed it “implausible.”
