@@ -17,3 +17,5 @@ JUST IN: 🇺🇸🇮🇷 United States rejects latest Iranian peace proposal.
 JUST IN: Michael Saylor’s Strategy now owns more than 4% of the total supply of Bitcoin.
 
 JUST IN: Bolivia moves to overhaul its cabinet as nationwide unrest & highway blockades strangle La Paz.
+
+JUST IN: Brazil is reportedly expected to export an all-time high 50 million bags of green coffee in the 2026/27 crop year.
