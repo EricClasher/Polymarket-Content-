@@ -33,5 +33,6 @@ JUST IN: Trump announces the U.S. has "total control" over the Strait of Hormuz.
 28% chance Hormuz traffic returns to normal by the end of next month.
 
 JUST IN: Oil prices projected to crash below $90 this month on reports that U.S. & Iran are nearing an agreement.
-
 61% chance.
+
+JUST IN: The Pentagon is using 25 “power users” to test rival AI models as it races to replace Claude.
