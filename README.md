@@ -23,3 +23,5 @@ JUST IN: Brazil is reportedly expected to export an all-time high 50 million bag
 JUST IN: Putin reportedly proposed to Xi that Iranian enriched uranium be transported to & stored in Russia.
 
 19% chance Iran agrees to surrender its enriched uranium stockpile by the end of next month.
+
+NEW: Scientists discover the Great Pyramid of Giza was built with "sophisticated" earthquake-resistant features.
