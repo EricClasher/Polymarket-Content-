@@ -25,3 +25,5 @@ JUST IN: Putin reportedly proposed to Xi that Iranian enriched uranium be transp
 19% chance Iran agrees to surrender its enriched uranium stockpile by the end of next month.
 
 NEW: Scientists discover the Great Pyramid of Giza was built with "sophisticated" earthquake-resistant features.
+
+15% chance aliens are confirmed this year.
