@@ -49,3 +49,5 @@ JUST IN: Nuclear startup Deep Fission files for IPO as it works to install nucle
 NEW: Clavicular announces he will livestream his upcoming looksmaxxing surgeries.
 
 NEW: Canadian Member of Parliament Tamara Jansen welcomes newborn grandson, Charlie Kirk Jansen.
+
+JUST IN: Fed’s Barkin warns gas prices could take months to fall even after the Strait of Hormuz fully reopens.
