@@ -59,3 +59,5 @@ JUST IN: Senate leaves for Memorial Day recess without passing Trump’s immigra
 JUST IN: Mark Cuban says Bitcoin "lost the plot"
 
 JUST IN: Trump pauses his AI oversight executive order, saying he "didn't like certain aspects of it"
+
+JUST IN: Oura, maker of Oura Ring, confidentially files for IPO.
