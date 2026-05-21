@@ -51,3 +51,5 @@ NEW: Clavicular announces he will livestream his upcoming looksmaxxing surgeries
 NEW: Canadian Member of Parliament Tamara Jansen welcomes newborn grandson, Charlie Kirk Jansen.
 
 JUST IN: Fed’s Barkin warns gas prices could take months to fall even after the Strait of Hormuz fully reopens.
+
+NEW: “The Mandalorian and Grogu” debuts with a 61% critic score on Rotten Tomatoes.
