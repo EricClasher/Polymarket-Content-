@@ -65,3 +65,5 @@ JUST IN: Oura, maker of Oura Ring, confidentially files for IPO.
 NEW: UN climate panel is set to drop its worst-case warming scenario after scientists deemed it “implausible.”
 
 JUST IN: SpaceX IPO filing reveals the company holds 18,712 Bitcoin at a cost basis of roughly $35,000 per BTC.
+
+JUST IN: Anthropic's private valuation has officially surpassed $1,000,000,000,000.00.
