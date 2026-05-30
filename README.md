@@ -1,3 +1,5 @@
+$MSFT is expected to unveil new software next week that lets AI agents perform tasks locally on $NVDA powered Windows PCs.
+
 JUST IN: Cuba has reportedly acquired more than 300 military drones & discussed plans to target Guantanamo Bay, nearby U.S. military vessels, & possibly Key West.
 
 51% chance of a U.S. x Cuba meeting by the end of next month.
