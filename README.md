@@ -67,3 +67,5 @@ NEW: UN climate panel is set to drop its worst-case warming scenario after scien
 JUST IN: SpaceX IPO filing reveals the company holds 18,712 Bitcoin at a cost basis of roughly $35,000 per BTC.
 
 JUST IN: Anthropic's private valuation has officially surpassed $1,000,000,000,000.00.
+
+NEW: Google is seeking approval to release up to 32 million “specially treated” mosquitoes in California & Florida to combat disease.
